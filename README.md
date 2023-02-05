@@ -1,2 +1,0 @@
-# kenzi.com
-condokha
